@@ -1,0 +1,1 @@
+# H-l-zati_algoritmusok_projekt
